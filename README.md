@@ -23,7 +23,7 @@ I enjoy exploring how digital products are built, how technology solves real-wor
 - **A Paso Seguro:** Contributed to an international collaborative project through social media management, visual design, and cross-cultural communication.
 
 ### 📫 Connect with Me
-- LinkedIn: [My LinkedIn Profile](YOUR_LINKEDIN_URL)
+- LinkedIn: [My LinkedIn Profile](https://www.linkedin.com/in/öykü-güzelel-8992343ba/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BLM5nSUVeRdWUMhNi29Aq3A%3D%3D)
 
 ---
 *Always curious, always learning.*
